@@ -4,6 +4,10 @@
 
 # Summary
 
+Sonic the Hedgehog (2020) movie's first trailer came under fire for the uncanny valley appearance of its titular character, prompting a redesign, and pushback of the release date. After a few months of anticipation, a second trailer was released to display the changes.
+
+However, while much of the focus is on the visuals of this redesign -  no formal research has been done on the audible shift between the first and second trailers, as well as how they compare to the sound of other Sonic media. This podcast will compare the songs chosen, sound effects used, and instrumentals of the two trailers.
+
 
 
 # Credits
