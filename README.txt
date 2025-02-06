@@ -33,9 +33,9 @@ gangstas paradise - Coolio - https://archive.org/details/coolio-gangstas-paradis
 
 all owned by SEGA:
 
-old sonic trailer (2019) - https://www.youtube.com/watch?v=IAYEMlPOHG8
-new sonic trailer (2020) - https://www.youtube.com/watch?v=szby7ZHLnkA
-sonic games sounds – https://archive.org/details/sonic-the-hedgehog-flac-collection
+old sonic trailer (2019) - Paramount Pictures - https://www.youtube.com/watch?v=IAYEMlPOHG8
+new sonic trailer (2020) - Paramount Pictures - https://www.youtube.com/watch?v=szby7ZHLnkA
+sonic games sounds - Sonic Team – https://archive.org/details/sonic-the-hedgehog-flac-collection
 sonic movie instrumentals – https://archive.org/details/sonic-the-hedgehog-music-from-the-motion-picture/01+-+Meet+Sonic+(Before+We+Start+I+Gotta+Tell+You+This).mp3
 sonic movie 2 instrumentals – https://archive.org/details/sonic-the-hedgehog-2-music-from-the-motion-picture
 sonic OVA music – https://archive.org/details/sonic-the-hedgehog-the-movie-ova-original-soundtrack-1996/1-01+Look-a-Like.mp3
