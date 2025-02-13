@@ -32,6 +32,8 @@ overview of all sonic game music - Liam Triforce - https://youtu.be/XDooMjw9uhU?
 
 gangstas paradise - Coolio - https://archive.org/details/coolio-gangstas-paradise-2 
 
+Live & Learn - Crush 40 - https://youtu.be/My-WSM-6QlE?si=9ldlkfj1bYjyRoph
+
 all owned by SEGA:
 
 old sonic trailer (2019) - Paramount Pictures - https://www.youtube.com/watch?v=IAYEMlPOHG8
