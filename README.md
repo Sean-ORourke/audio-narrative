@@ -2,7 +2,7 @@
  all project material related to the audio narrative unit in composing digital media
 
 
-# Summary
+# Summary and Artist's Statement
 
 Sonic the Hedgehog (2020) movie's first trailer came under fire for the uncanny valley appearance of its titular character, prompting a redesign, and pushback of the release date. After a few months of anticipation, a second trailer was released to display the changes. However, while much of the focus is on the visuals of this redesign - no formal research has been done on the audible shift between the first and second trailers, as well as how they compare to the sound of other Sonic media. This podcast will compare the songs chosen, sound effects used, and instrumentals of the two trailers. I aim to showcase the an aspect of the development process between these trailers, to show how the reseshign was not only visual but auditory as well - analyze this change in a new way. Being one of the first people to see the new trailer - I am very invested in this subject already. I love film, media, the development process, feedback, and Sonic, so this topic is a combination of many things I am interested about. I had a lot of fun looking at this from a new angle. I would like others to see the efforts and changes Paramount put into the resdesign as well.
 
