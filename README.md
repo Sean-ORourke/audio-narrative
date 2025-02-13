@@ -4,10 +4,39 @@
 
 # Summary
 
+
+
+Building on your introduction, what story have you told via your audio narrative?
 Sonic the Hedgehog (2020) movie's first trailer came under fire for the uncanny valley appearance of its titular character, prompting a redesign, and pushback of the release date. After a few months of anticipation, a second trailer was released to display the changes.
 
 However, while much of the focus is on the visuals of this redesign -  no formal research has been done on the audible shift between the first and second trailers, as well as how they compare to the sound of other Sonic media. This podcast will compare the songs chosen, sound effects used, and instrumentals of the two trailers.
 
+What have you chosen to include or exclude?
+For time, I have excluded an in-depth review of all the music in previous Sonic media - instead opting for a surface level view of what his music in general sounds like to give the audience a feeling. I have also excluded mentioning the subsequent Sonic movies for time.
+
+How have you approached telling this story, and why?
+I have approached this story primarily from a relatable angle.
+
+Who has been your intended audience(s), and what is your purpose in telling this story, this way, to them?
+My intended audience is those who like adaptation movies, trailers, and analyzing music. However, Sonic fans are already preisposed to enjoy the background music.
+
+How have you engaged in ongoing conversations on the subject? What have you added or contributed to those conversations?
+Seeing as there is not much conversation on this subject, I provided a first coverage of the music in the trailers. I aimed to take general sentiment I had seen from those viewing the trailers, find and contextualize reasons why the music change is rhetorically effective.
+
+What sources have you used for information about or shaping your narrative?
+I have used primary sources to showcase the
+
+How have you used these sources in your narrative?
+
+
+What audio resources have you used in the design of your audio narrative?
+I have used instrumentals for the Sonic Movie, songs commonly assoiciated with Sonic such as Live & Learn, and sound effects used in Sonic games.
+
+What kinds of resources have you used, and how have you used them to make your project rhetorically effective?
+I have used a lot of resources to provide a musical background for the sonic movies and the sonic franchise. Additionally, I have used Sonic sound effects to provide more backgound to what Sonic sounds like as a franchise, and provide rhetorical cues for how the audience should feel.
+
+How have you used audio editing via Audacity to combine these resources into a single narrative?
+I have done a lot of fosusing on cutting, fading, and a slight emphasis on overlapping sound to combine the themes and ideas of the audio.
 
 
 # Credits
