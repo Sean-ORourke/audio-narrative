@@ -1,6 +1,8 @@
 # audio-narrative
  all project material related to the audio narrative unit in composing digital media
-
+ 
+# youtube video link:
+https://www.youtube.com/watch?v=Z1kU12c5RzI
 
 # Summary and Artist's Statement
 
